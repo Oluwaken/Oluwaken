@@ -1,0 +1,9 @@
+- 👋 Hi, I’m @Oluwaken
+- 👀 I’m interested in CryptoCurrency as well as Network and Affiliate Marketing and also Content Creation...
+- 🌱 I’m currently learning Website Creation ...
+- 💞️ I’m looking to collaborate on Jobs that have to do with Content Creation as well as Affiliate Marketing...
+- 📞How to Contact Me : Just Click on this link, direct to WhatsApp https://wa.me/2348102302705
+<!---
+Oluwaken/Oluwaken is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
